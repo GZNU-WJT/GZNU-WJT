@@ -1,4 +1,4 @@
-### Hi there 👋
+### Please download to get my personal detail 👋
 
 <!--
 **GZNU-WJT/GZNU-WJT** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
